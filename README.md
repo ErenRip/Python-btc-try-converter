@@ -4,6 +4,9 @@
 ![picture alt]( https://media.giphy.com/media/HoIrPgqTBiB2XvVEf7/giphy.gif "Title is optional")
 
 
+
+
+
 # BTC MİNİNG MONEY TRANS TRY
 
 
